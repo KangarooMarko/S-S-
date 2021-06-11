@@ -1,2 +1,2 @@
-# S-S-
+# Szs
 Sajt ta Slobodan život srbije
